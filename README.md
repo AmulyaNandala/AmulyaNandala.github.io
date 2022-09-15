@@ -1,2 +1,2 @@
 # AmulyaNandala.github.io
-Registration From
+Registration Form
